@@ -1,1 +1,1 @@
-Jamaica so cool
+Jamaica so cooler than America
